@@ -6,4 +6,6 @@ O código civil:
 A proposta do PASTOR FRANKLIN:  
 [>>> \\(^-^)/](https://www.camara.leg.br/proposicoesWeb/prop_mostrarintegra;jsessionid=3F2F80353693ECD272F2D29FD7B9B249.proposicoesWebExterno2?codteor=1362464&filename=PL+2387/2015)  
 O texto do relator RUBENS PEREIRA JUNIOR:  
-[>>> t-t](https://www.camara.leg.br/proposicoesWeb/prop_mostrarintegra?codteor=1475582&filename=Tramitacao-PL+2387/2015)  
+[>>> QoQ](https://www.camara.leg.br/proposicoesWeb/prop_mostrarintegra?codteor=1475582&filename=Tramitacao-PL+2387/2015)  
+  
+Os slides: [(miclica)](https://docs.google.com/presentation/d/1m0k0phwJwk2Gf18R95hB-jCEmECvxSKi3ZoFRFNUXvo/edit?usp=sharing)
